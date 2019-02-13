@@ -19,7 +19,7 @@ Cho, whose tour comes to Britain in late November, is looking forward to spendin
 
 Her previous tour featured dog rescuing, where before the show the audience could see dogs that they could apply to adopt. This feature won't return, however, as Cho explains it was "hard to get together but it was very successful." She did, however, note the experience was "really cute" and it was "really nice to have that" as part of the show.
 
-[![IMAGE ALT TEXT HERE](http://img.youtube.com/vi/watch?v=07J7FewshAA/0.jpg)](http://www.youtube.com/watch?v=watch?v=07J7FewshAA)
+[![IMAGE ALT TEXT HERE](http://img.https://www.youtube.com/watch?v=07J7FewshAA)](https://www.youtube.com/watch?v=07J7FewshAA)
 
 
 
