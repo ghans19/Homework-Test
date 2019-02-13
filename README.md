@@ -61,7 +61,7 @@ She notes though maybe with Trump, who "doesn't care," that might change before 
 
 Cho's tour will last a while but she's already thought far ahead into the future: "I’ll work on Highland, I’ll be doing TV stuff, I’m still working on Joan River’s show, The Fashion Police.  I always want to do comedy. I’ll be touring for this show for quite a while, and I still need to go to Asia and Australia, all of that side of the world, so there’s still a lot to do."
 
-* *Margaret Cho's UK and Ireland tour dates are from the 25th November to the 10th December. For full dates and prices, visit http://margaretcho.com/tour/ * *
+*Margaret Cho's UK and Ireland tour dates are from the 25th November to the 10th December. For full dates and prices, visit http://margaretcho.com/tour/* 
 
 
 
