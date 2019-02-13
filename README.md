@@ -4,8 +4,8 @@ This is an article I wrote after interviewing Maragret Cho, reuploaded as a prac
 "I’m excited about the show. It’s savage, it’s nasty, it’s great."
 
 <p align="center">
-  <img width="460" height="300" src="!(https://user-images.githubusercontent.com/47171384/52698197-f81cde80-2fad-11e9-8b3e-fa1914d043b4.jpg)">
-</p>
+  <img width="460" height="300"![cho in 2](https://user-images.githubusercontent.com/47171384/52699713-60b98a80-2fb1-11e9-94c7-8169848b005c.jpg)</p>
+
 
 Margaret Cho has become known for her dark sense of humour. Now 48, the Drop Dead Diva star has embarked on a tour with what she has described as her "sickest show to date", with it dealing with "a lot of hard stuff about addiction, about weight."
 
